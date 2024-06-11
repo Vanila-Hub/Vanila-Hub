@@ -2,7 +2,7 @@
 - 👀 I’m interested in Software Development
 - 🌱 I’m currently learning React Framework
 - 💞️ I’m looking to collaborate on proyects
-- 📫 How to reach me frankyas11
+- 📫 How to reach me on instagram @frankyas11
 
 
 
